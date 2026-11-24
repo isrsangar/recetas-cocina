@@ -23,3 +23,4 @@
 4. Cuando hierva, añade el pescado y cuécelo unos 15 minutos. Retira el pescado y cuela el caldo.
 5. Vuelve a poner el caldo en el caldero, añade el arroz y el azafrán, y cocina a fuego medio unos 18 minutos.
 6. Sirve el arroz acompañado de alioli y el pescado aparte, como segundo plato.
+7. Servir calentito
